@@ -7,9 +7,7 @@
 
 <p align="left"> <a href="https://twitter.com/arsalanximam" target="blank"><img src="https://img.shields.io/twitter/follow/arsalanximam?logo=twitter&style=for-the-badge" alt="arsalanximam" /></a> </p>
 
-//- 📄 Know about my experiences [https://drive.google.com/file/d/1hyL4PO0Sjo9dP4_gIBovT5gcWuaPzJ6f/view?usp=drivesdk](https://drive.google.com/file/d/1hyL4PO0Sjo9dP4_gIBovT5gcWuaPzJ6f/view?usp=drivesdk)
-
-- ⚡ Fun fact **I am HABIBI**
+- ⚡ Fun fact **SIUUUU**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
